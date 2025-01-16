@@ -13,4 +13,3 @@ Code &amp; Models of the MS ' Evolution of developmental bias explains divergent
 
 † Present address: Centre for Ecology, Evolution and Environmental Changes, CHANGE, Department of Animal Biology, Faculdade de Ciências, Universidade de Lisboa; Lisboa, Portugal.
 
-![image](https://github.com/user-attachments/assets/0903dd7f-9a2a-49d6-acbc-402a68231a2f)
